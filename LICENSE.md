@@ -1,4 +1,4 @@
-# 
+# secure CCleaner para PC scripts es el mejor CCleaner para PC scripts con mover archivos y análisis de disco. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
